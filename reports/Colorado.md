@@ -50,3 +50,13 @@ An officer peppersprays someone recording the capitol building through his sun r
 **Links**
 
 * https://twitter.com/greg_doucette/status/1266758227930333188
+
+## Colorado Springs
+
+### Police fire and beat protester while he is on the ground
+
+Police fired what appear to be pepper pellets at a protester and proceed to beat him on the ground while being recorded from a car.
+
+**Links**
+
+* https://krdo.com/news/top-stories/2020/06/02/cspd-reviewing-arrest-after-video-shows-officers-repeatedly-punch-suspect-at-protest/
